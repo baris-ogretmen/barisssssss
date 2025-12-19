@@ -1,0 +1,2 @@
+# barisssssss
+eğitim oyunu
